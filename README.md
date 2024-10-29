@@ -4,6 +4,8 @@
 
 🌒 sou aluna do **Primeiro B**
 
+🖇️ estou estudando na [Alura](https://www.alura.com.br)
+
 👽 tenho **_16y_**
 
 🥶 para entrar em contato comigo **mariane.aparecida.domingues@escola.pr.gov.br** 
